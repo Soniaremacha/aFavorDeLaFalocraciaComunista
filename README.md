@@ -1,2 +1,0 @@
-# aFavorDeLaFalocraciaComunista
-demo
